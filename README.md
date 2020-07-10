@@ -2,5 +2,8 @@
 Nothing Special
 Hi everybody...
 
+
+Basically, I am an Advocate..
 I am a Football lover. I love Music.. Evergreen 80s..
-Basically, I am an Advocate.. 
+ 
+Delayed Justice denied Justice...
